@@ -34,4 +34,4 @@
 
 ## 📫 Connect with Me
 
-LinkedIn: (your link here)
+LinkedIn: https://www.linkedin.com/in/deepa-kunchikorve-5a67753bb/
